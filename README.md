@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **ML**
 
-- 📫 How to reach me **rana19852006@gmail.com**
+- 📫 How to reach me **shahriarshourov2023@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
